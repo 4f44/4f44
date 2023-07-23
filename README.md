@@ -4,7 +4,7 @@
 - 💞️ New Account, Old Account is Suspended.
 - 📫 How to reach me?
  On Discord: @phytonutrients | E-Mail: 4f44@dyno.gg ( Not Anymore )
-- <3
+- 🤖 Dyno Retired Staff & Support | What Next ? 
 <!---
 4f44/4f44 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
